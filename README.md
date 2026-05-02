@@ -1,2 +1,2 @@
 
-https://zenithpixelsdxb-max.github.io/Zenithpixels.com/
+https://zenithpixelsdxb-max.github.io/zenithpixels.com/
